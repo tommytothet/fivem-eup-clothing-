@@ -3,7 +3,9 @@ This is my old clothing pack from 2020 it still works fine you will need a key f
 
 Download it from my mega archive if it doesnt work on github. https://mega.nz/folder/x1YFVKYA
 
-To get the key for the mega archive go to linkverise. 
+To get the key for the mega archive go to linkverise. https://linkvertise.com/1045782/eup-clothing-pack-key?o=sharing 
+
+The password for the pastebin is eup enjoy!
 
 The Password for the pastebin is eup
 
